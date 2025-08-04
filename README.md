@@ -1,6 +1,5 @@
 ## Hi, I'm Dhairya 🕸
 
-🧠 Introducing myself into world of AI & ML.<br/>
 👩‍💻 I have experience in coding and web development.<br/>
 👉 Here's my instagram id (https://www.instagram.com/huchudhirubhai/)
 
